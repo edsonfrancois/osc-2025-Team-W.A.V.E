@@ -1,2 +1,2 @@
-# osc-2025-Team-W.A.V.E
+# osc-2025-Team-E.W.A
 (to be added)
